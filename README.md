@@ -9,6 +9,9 @@
 - drink connoisseur :beer:
 - environmentalist :mushroom:
 - gamer :space_invader:
+- fan of all music genres 🎹
+
+[my music](https://open.spotify.com/user/p5ofhy3sxglu69xo1pgh2vzyd)
 
 ### currently working on: :black_joker:
 - interning with an Ondesk team in midtown Manhattan, NYC
